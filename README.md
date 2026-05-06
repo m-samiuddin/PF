@@ -43,4 +43,4 @@ More animations and project showcase pages
 📬 Contact
 
 👨‍💻 Muhammad Samiuddin
-Email: [m.samiuddin89@gmail.com]
+Email: [muhammadsamiuddin.nec@gmail.com]
